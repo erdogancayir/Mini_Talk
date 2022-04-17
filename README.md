@@ -1,1 +1,1 @@
-![](https://media1.giphy.com/media/xUNd9ZwlnjBO4lXYgU/giphy.gif?cid=ecf05e47vva3qlqcj3muxt342mbb4g3duql420wdsejbst4p&rid=giphy.gif&ct=g)
+![](https://media3.giphy.com/media/1pA2TiTktKkBTZtVzK/200.webp?cid=ecf05e471tvog0v3zn7vrbae3tveholpdmo6tl36ymx7bblm&rid=200.webp&ct=g)
